@@ -16,7 +16,7 @@ Pricipales funciones del sitio:
 
 ✔ Anuncios de campañas de esterilizacion
 
-✔ Tinder (Conseguile una pareja a tu amigo )😉😻
+✔ Tinder (Tu mejor amigo necesita accion )😉😻
 
 
 Grupo : Cristian Mogensen - Brian Sardarevic - Lola Lopez - Guillermo Petroff - Juan Garzon
